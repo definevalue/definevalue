@@ -5,6 +5,6 @@ Hi there 👋
 - 👯 I’m looking to collaborate on diablo 4
 - 🤔 I’m looking for help with masturdebating 
 - 💬 Ask me about bitcoin
-- 📫 How to reach me: definevalue@mmoclub.com
+- 📫 How to reach me: runederrik@gmail.com
 - 😄 life is nothing but memes
 - ⚡ Fun fact: jesus is flesh and blood of the fallen Angel Lucifer. Not to be confused with Satan..
